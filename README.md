@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @MTHXGG
+- 👀 I’m interested in: in programming
+- 🌱 I’m currently learning: I'm currently learning HTML5 but in the future I'll move on to JavaScript, Python, etc.
+- 💞️ I’m looking to collaborate on: with everyone who asks for help
+- 📫 How to reach me: arrive without discordmthxgg
+- 🇧🇷 I'm BR too 🇧🇷
